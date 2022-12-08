@@ -1,2 +1,2 @@
-# Privacy-oriented-apps
+# Privacy & Security Oriented Apps and Services
 
